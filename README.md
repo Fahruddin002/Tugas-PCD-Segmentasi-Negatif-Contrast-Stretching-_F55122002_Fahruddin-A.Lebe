@@ -1,0 +1,1 @@
+# Tugas-PCD-Segmentasi-Negatif-Contrast-Stretching-_F55122002_Fahruddin-A.Lebe
